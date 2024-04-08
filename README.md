@@ -1,6 +1,21 @@
 欢迎访问开云体育网址入口线路！我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://vimeo.com/918005706](https://vimeo.com/918005706)
+- [https://maiotaku.com/p/pengms/info](https://maiotaku.com/p/pengms/info)
+- [https://research.openhumans.org/member/peng/](https://research.openhumans.org/member/peng/)
+- [https://www.openhumans.org/member/peng/](https://www.openhumans.org/member/peng/)
+- [https://www.openhumans.com/member/peng/](https://www.openhumans.com/member/peng/)
+- [https://www.openhumans.net/member/peng/](https://www.openhumans.net/member/peng/)
+- [https://production.openhumans.org/member/peng/](https://production.openhumans.org/member/peng/)
+- [https://vimeo.com/kaiyuncc](https://vimeo.com/kaiyuncc)
+- [https://vimeo.com/user160134730](https://vimeo.com/user160134730)
+- [https://lu.ma/2cd43uc1](https://lu.ma/2cd43uc1)
+- [https://answerpail.com/index.php/user/penghy66](https://answerpail.com/index.php/user/penghy66)
+- [https://archive.org/details/@penghy66](https://archive.org/details/@penghy66)
+- [https://archive.org/details/@pengms](https://archive.org/details/@pengms)
+- [https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/1943158#profile](https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/1943158#profile)
+- [https://linktr.ee/pengmsgt](https://linktr.ee/pengmsgt)
 - [https://lu.ma/t4jz5015](https://lu.ma/t4jz5015)
 - [https://lu.ma/u/usr-Nfs8bZP8MewFJt3](https://lu.ma/u/usr-Nfs8bZP8MewFJt3)
 - [https://linktr.ee/venghk](https://linktr.ee/venghk)

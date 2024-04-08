@@ -1,8 +1,21 @@
 欢迎访问开云体育网址入口线路！我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://lu.ma/t4jz5015](https://lu.ma/t4jz5015)
+- [https://lu.ma/u/usr-Nfs8bZP8MewFJt3](https://lu.ma/u/usr-Nfs8bZP8MewFJt3)
+- [https://linktr.ee/venghk](https://linktr.ee/venghk)
+- [九游娱乐](http://jyf9.com/)
+- [九游娱乐](http://jyf2.com/)
+- [九游娱乐](http://jyf1.com/)
+- [九游娱乐](https://jy1f.com/)
+- [九游娱乐](https://jiuyou.gg/)
+- [亚博体育](http://yabo-cc.com/)
+- [杏彩体育](https://xcf1.com/)
+- [杏运体育](https://1fxy.com/)
+- [http://chodichvu.vn/members/pengcharlie.57662/](http://chodichvu.vn/members/pengcharlie.57662/)
+- [https://www.mixcloud.com/pengmsgt/](https://www.mixcloud.com/pengmsgt/)
+- [https://newspicks.com/user/9885672](https://newspicks.com/user/9885672)
 - [http://www.iwi6.com/](http://www.iwi6.com/)
-- [亚博体育](http://f1yb.com/)
 - [https://profile.ameba.jp/ameba/bright8199/](https://profile.ameba.jp/ameba/bright8199/)
 - [https://ameblo.jp/bright8199/](https://ameblo.jp/bright8199/)
 - [https://ameblo.jp/bright8199/entry-12836698514.html](https://ameblo.jp/bright8199/entry-12836698514.html)

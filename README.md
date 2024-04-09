@@ -1,6 +1,17 @@
 欢迎访问开云体育网址入口线路！我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/2409773#profile](https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/2409773#profile)
+- [https://archive.org/details/@penggg789/](https://archive.org/details/@penggg789/)
+- [http://www.yilubbs.com/space-uid-16195.html](http://www.yilubbs.com/space-uid-16195.html)
+- [https://bbs.panchip.com/home.php?mod=space&uid=1304](https://bbs.panchip.com/home.php?mod=space&uid=1304)
+- [https://bbs.voldp.com/space-uid-23374.html](https://bbs.voldp.com/space-uid-23374.html)
+- [http://mpages.co.nz/home.php?mod=space&uid=420571](http://mpages.co.nz/home.php?mod=space&uid=420571)
+- [http://mpages.co.nz/home.php?mod=space&uid=425471](http://mpages.co.nz/home.php?mod=space&uid=425471)
+- [https://www.meiyingge8.com/space-uid-454511.html](https://www.meiyingge8.com/space-uid-454511.html)
+- [https://rock8899.com/home.php?mod=space&uid=1398144](https://rock8899.com/home.php?mod=space&uid=1398144)
+- [https://q.vnpy.cn/comm/space-uid-32131.html](https://q.vnpy.cn/comm/space-uid-32131.html)
+- [http://www.so0912.com/?2150263](http://www.so0912.com/?2150263)
 - [https://vimeo.com/918005706](https://vimeo.com/918005706)
 - [https://maiotaku.com/p/pengms/info](https://maiotaku.com/p/pengms/info)
 - [https://research.openhumans.org/member/peng/](https://research.openhumans.org/member/peng/)
@@ -13,7 +24,6 @@
 - [https://lu.ma/2cd43uc1](https://lu.ma/2cd43uc1)
 - [https://answerpail.com/index.php/user/penghy66](https://answerpail.com/index.php/user/penghy66)
 - [https://archive.org/details/@penghy66](https://archive.org/details/@penghy66)
-- [https://archive.org/details/@pengms](https://archive.org/details/@pengms)
 - [https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/1943158#profile](https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/1943158#profile)
 - [https://linktr.ee/pengmsgt](https://linktr.ee/pengmsgt)
 - [https://lu.ma/t4jz5015](https://lu.ma/t4jz5015)

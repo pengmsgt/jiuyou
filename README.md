@@ -1,6 +1,13 @@
 欢迎访问开云体育网址入口线路！我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [http://hxyswhw.com/home.php?mod=space&uid=359632](http://hxyswhw.com/home.php?mod=space&uid=359632)
+- [http://www.chenjiagou.net/home.php?mod=space&uid=194453](http://www.chenjiagou.net/home.php?mod=space&uid=194453)
+- [https://forum.dzpknews.com/space-uid-684550.html](https://forum.dzpknews.com/space-uid-684550.html)
+- [http://01bim.com/home.php?mod=space&uid=359630](http://01bim.com/home.php?mod=space&uid=359630)
+- [https://fzbg01.wixsite.com/efnkimssc/post/is-consciousness-universal](https://fzbg01.wixsite.com/efnkimssc/post/is-consciousness-universal)
+- [https://fzbg01.wixsite.com/efnkimssc/post/sportsgambling-information-network](https://fzbg01.wixsite.com/efnkimssc/post/sportsgambling-information-network)
+- [https://fzbg01.wixsite.com/efnkimssc](https://fzbg01.wixsite.com/efnkimssc)
 - [https://www.openhumans.org/pengms/](https://www.openhumans.org/pengms/)
 - [http://www.haxorware.com/forums/member.php?action=profile&uid=271337](http://www.haxorware.com/forums/member.php?action=profile&uid=271337)
 - [https://archive.org/details/@pengmsgt/](https://archive.org/details/@pengmsgt/)

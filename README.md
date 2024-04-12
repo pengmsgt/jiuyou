@@ -1,6 +1,15 @@
 欢迎访问开云体育网址入口线路！我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://www.openhumans.org/pengms/](https://www.openhumans.org/pengms/)
+- [http://www.haxorware.com/forums/member.php?action=profile&uid=271337](http://www.haxorware.com/forums/member.php?action=profile&uid=271337)
+- [https://archive.org/details/@pengmsgt/](https://archive.org/details/@pengmsgt/)
+- [https://www.crunchbase.com/person/simons-huang](https://www.crunchbase.com/person/simons-huang)
+- [https://www.mixcloud.com/venghk/](https://www.mixcloud.com/venghk/)
+- [https://qiita.com/venghk/items/f84037dd36475bae0174](https://qiita.com/venghk/items/f84037dd36475bae0174)
+- [https://qiita.com/venghk/items/8a29186a089a5a0470ea](https://qiita.com/venghk/items/8a29186a089a5a0470ea)
+- [https://qiita.com/venghk](https://qiita.com/venghk)
+- [https://vietnamese.googleblog.com/2015/07/le-hieu-hay-luon-uoc-mo-va-ung-tu-bo.html?sc=1712926237226](https://vietnamese.googleblog.com/2015/07/le-hieu-hay-luon-uoc-mo-va-ung-tu-bo.html?sc=1712926237226)
 - [https://sc.sie.gov.hk/TuniS/yabo.ac](https://sc.sie.gov.hk/TuniS/yabo.ac)
 - [https://sc.sie.gov.hk/TuniS/f9yb.com](https://sc.sie.gov.hk/TuniS/f9yb.com)
 - [https://sc.sie.gov.hk/TuniS/f5yb.com](https://sc.sie.gov.hk/TuniS/f5yb.com)
